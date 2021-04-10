@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dperlop
+- 👀 I’m interested in web designs and learning new methods of work
+- 🌱 I’m currently learning testing
+- 💞️ I’m looking to collaborate on new proyects
+- 📫 How to reach me ...
