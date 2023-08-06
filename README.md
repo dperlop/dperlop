@@ -2,3 +2,4 @@
 - 👀 I’m interested in web designs, games and learning new methods of work
 - 🌱 I’m currently working and learning more things about automation
 - 💞️ I’m looking to collaborate on new proyects
+- 💻 Owner of South Division 
